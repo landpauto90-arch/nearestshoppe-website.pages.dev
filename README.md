@@ -1,1 +1,0 @@
-# nearestshoppe-website.pages.dev
